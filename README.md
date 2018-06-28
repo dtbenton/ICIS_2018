@@ -1,6 +1,6 @@
 I was recently accepted to present a poster, titled "Learning about the motion properties of people and inanimate objects," at The International Conference of Infant Studies (ICIS) in Philadelphia.
 
-I was fortunate enough to have been awarded the National Science Foundation Graduate Research Fellowship for this work, and my aim is to submit this work for publication in the next couple of months.
+I was fortunate enough to have been awarded the National Science Foundation Graduate Research Fellowship for this work in 2014, and my aim is to submit this work for publication in the next couple of months.
 
 <h2>Abstract</h2>
 
